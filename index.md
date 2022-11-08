@@ -3,13 +3,11 @@
 ## はこだて割使用可能宿  
 ※ 12/29チェックイン~1/3チェックイン はこだて割対象外
 
-### 湯の浜ホテル  
-https://www.yunohama-hotel.com/  
+### [湯の浜ホテル](https://www.yunohama-hotel.com/)  
 現在はこだて割プラン売り切れ状態(再販可能性あり)  
 和室1間 6人 朝食のみ 12/28~30の2泊 79200(一人一泊6600円)  
 
-### 函館湯の川温泉　湯元　啄木亭  
-https://www.takubokutei.com/  
+### [函館湯の川温泉　湯元　啄木亭](https://www.takubokutei.com/)  
 #### 公式サイトでの予約  
 1. はこだて割適用6人の場合  
 3人定員和室x2(計6人) 朝食 夕食付き 12/28~29一泊 39600円(一人一泊6600円)  
@@ -18,32 +16,26 @@ https://www.takubokutei.com/
 3. はこだて割適用5人の場合  
 5人和室 朝食 夕食付き 12/28~29一泊 30250円(一人一泊6050円) or 35750(一人一泊7150円)※ちょっといい部屋  
 
-### HAKODATE海峡の風   
-https://hakodate-uminokaze.com/  
+### [HAKODATE海峡の風](https://hakodate-uminokaze.com/)  
 6人和室 朝食 夕食付き 12/28~29一泊 62100円(一人一泊10350円) 公式予約はこだて割  
 
-### 平成館 しおさい亭  
-http://www.shiosai-tei.com/  
+### [平成館 しおさい亭](http://www.shiosai-tei.com/)  
 1. 5人プラン  
 5人定員和室　朝食 夕食付き 12/28~29一泊 一人一泊8500円　公式予約はこだて割  
 2. 6人の場合  
 5人定員和室x1 4人定員和室x1 朝食 夕食付き 12/28~29一泊 一人一泊8000~9000円 公式予約はこだて割  
 
-### 函館湯の川温泉 海と灯  
-https://hewitt-resort.com/hakodate-yunokawa/  
+### [函館湯の川温泉 海と灯](https://hewitt-resort.com/hakodate-yunokawa/)  
 3名普通の部屋x2 朝食 夕食付き 12/28~29一泊 一人一泊14095円 (はこだて割完売のため元の額)  
 ※ はこだて割現状売り切れだが、再販の可能性あり。はこだて割あれば激推し  
 
-### La'gent Stay Hakodate Ekimae  
-https://lagent.jp/hakodate-ekimae/  
+### [La'gent Stay Hakodate Ekimae](https://lagent.jp/hakodate-ekimae/)  
 2名普通の部屋x3 朝食のみ 12/28~29一泊 一人一泊7000円くらい　公式予約はこだて割(現状一部屋空きが足りない)  
 
-### 函館・湯の川温泉 ホテル万惣  
-https://www.banso.co.jp/  
+### [函館・湯の川温泉 ホテル万惣](https://www.banso.co.jp/)  
 3名普通の部屋x1 + 3名和室x1 朝食 夕食付き 12/28~29一泊 65800円(一人11000円)　公式予約はこだて割  
 
-### イマジンホテル&リゾート函館  
-https://imaginehakodate.jp/  
+### [イマジンホテル&リゾート函館](https://imaginehakodate.jp/)  
 1. 5名の場合 公式  
 5人定員和室　朝食 夕食付き 12/28~29一泊 一人一泊8112円　公式予約はこだて割(ただし公式サイトからは現状はこだて割が11月中の日程予約のみ、後で12月も解禁される可能性あり)  
 2. 5名の場合 非公式  
@@ -51,13 +43,11 @@ https://imaginehakodate.jp/
 3. 6名の場合  
 和室x2 朝食 夕食付き 12/28~29一泊 一人一泊6750円 格安旅行専門ツアーステージからの予約、ただし2部屋の空きがあるかは分からず  
 
-### HOTEL＆SPAセンチュリーマリーナ函館  
-https://www.centurymarina.com/  
+### [HOTEL＆SPAセンチュリーマリーナ函館](https://www.centurymarina.com/)  
 3名普通の部屋x2 朝食のみ 12/28~29一泊 一人一泊8300円  格安旅行専門ツアーステージからの予約  
 https://stagesystem.co.jp/hotelplan/ph-lsmh-02/  
 
-### ラビスタ函館ベイ  
-https://www.hotespa.net/hotels/lahakodate/  
+### [ラビスタ函館ベイ](https://www.hotespa.net/hotels/lahakodate/)  
 2名普通の部屋x3 朝食 夕食つき 12/28~29一泊 一人一泊10000円くらい　公式予約はこだて割  
 
 
